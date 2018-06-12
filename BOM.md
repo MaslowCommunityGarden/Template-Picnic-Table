@@ -1,6 +1,6 @@
 ##Materials:
 
-- seven 6' 2"x6"s
+- seven 12' 2"x6"s
 
 - two 8' 2"x4"s
 
